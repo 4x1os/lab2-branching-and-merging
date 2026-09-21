@@ -15,11 +15,15 @@ This recipe makes a three-layer celebration cake with a caramel filling between 
 - 2 teaspoons vanilla extract
 - 3/4 cup unsweetened cocoa powder
 - 1 cup dark chocolate chips
+- 12 pounds of peanuts
+- 3 jars Kraft Smooth Peanut butter
+- Thermonuclear missile
 
 ## Filling
 
 - 1 1/2 cups salted caramel sauce
 - 1 cup chopped toasted pecans
+- 3 jars Kraft Smooth Peanut butter
 
 ## Frosting
 
@@ -70,3 +74,7 @@ This recipe makes a three-layer celebration cake with a caramel filling between 
 13. Decorate the cake with chocolate curls.
 
 14. Add a drizzle of salted caramel sauce just before serving.
+
+15. Pour on all the peanut butter and peanuts
+
+16. Detonate the missile
